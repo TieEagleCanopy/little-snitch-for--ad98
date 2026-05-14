@@ -1,4 +1,4 @@
-# 
+# Little Snitch for macOS automatic Extension: encryption & credit-card-storage offers the most advanced Little Snitch for macOS extension, with encryption and credit-card-storage.
 
 
 
